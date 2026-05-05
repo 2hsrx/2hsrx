@@ -1,4 +1,4 @@
-## just follow me on tiktok @ncxcore
+## i use zereneOS btw
 
 <!--
 **2hsrx/2hsrx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
